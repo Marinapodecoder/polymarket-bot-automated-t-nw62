@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with advanced Polymarket Addon | sentiment-analysis + slippage-control, the #1 addon. Includes sentiment-analysis and slippage-control for a
 
 
 
